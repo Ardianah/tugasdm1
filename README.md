@@ -1,0 +1,2 @@
+# tugasdm1
+ada

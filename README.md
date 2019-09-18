@@ -1,2 +1,0 @@
-# tugasdm1
-ada
